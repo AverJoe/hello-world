@@ -1,2 +1,3 @@
 # hello-world
 This is just the beginning
+Stuck in my thoughts most of the time, I realize that I am a dreamer with a desire to be good and do good. I want to love my neighbor and love the earth. Those, I believe, are the most important aspects to being happy and human. I say I am stuck in my thoughts, because I have ideas of what to do with my life, but they don't ever come to fruition. I am not happy, and dare I say, I do not feel human sometimes. With this program, I hope to be able to organise my actions and accomplishments, to show that I am deceiving myself; That I care about others and the world. I hope my interest in music, photography and web development can be combined with my desire of creation care to make a difference in the world around me.
